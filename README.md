@@ -154,7 +154,7 @@ American International University-Bangladesh (AIUB)
 ### Connect With Me
 
 - GitHub: https://github.com/mdAbdullahAnas
-- LinkedIn:  https://www.linkedin.com/in/md-abdullah-anas-5a4914253/
+- LinkedIn:  https://www.linkedin.com/in/mdabdullahanas/
 
 ---
 
